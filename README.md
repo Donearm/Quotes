@@ -4,6 +4,8 @@ Repository containing a small collection of quotes, from various source and of d
 
 [Quotes](https://github.com/Donearm/Quotes/blob/master/quotes.md)
 
+If you spot a typo, an incorrect reference or a plain false quote, PRs are vastly welcome.
+
 ## License
 
 They are not my quotes, unless specifically stated, so Do Whatever You Want With Them License
