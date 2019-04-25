@@ -517,3 +517,7 @@
 
 > The difference between a cult and a church is real estate
 #### Frank Zappa
+
+> Bullshit has tremendous advantages over knowledge. Bullshit can be created as needed, on demand, without limit.
+> Anything that happens, you can make up an explanation for why it happened
+#### Bill James
