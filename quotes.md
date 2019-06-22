@@ -521,3 +521,6 @@
 > Bullshit has tremendous advantages over knowledge. Bullshit can be created as needed, on demand, without limit.
 > Anything that happens, you can make up an explanation for why it happened
 #### Bill James
+
+> Do not suppose the statements of the prophets to be true; they are all fabrications. Men lived comfortably till they came and spoiled life. The sacred books are only such a set of idle tales as any age could have and indeed did actually produce
+#### Abu al-'Ala' al-Ma'arri
