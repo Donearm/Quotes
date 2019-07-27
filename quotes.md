@@ -21,18 +21,18 @@
 > persons, two of them absent.
 #### Anonymous
 
-> He who knows does not speak.
-> He who speaks does not know.
+> He who knows does not speak.  
+> He who speaks does not know.  
 #### Lao-tzu, "The Way of Lao-tzu"
 
-> To know that you do not know is the best.
-> To pretend to know when you do not know is a disease.
+> To know that you do not know is the best.  
+> To pretend to know when you do not know is a disease.  
 #### Lao-tzu, "The Way of Lao-tzu"
 
 > History is the version of past events that people have decided to agree upon.
 #### Napoleon Bonaparte
 
-> It is not because things are difficult that we do not dare;
+> It is not because things are difficult that we do not dare;  
 > it is because we do not dare that they are difficult.
 #### Seneca
 
@@ -42,17 +42,17 @@
 > It is not a sign of good health to be well adjusted to a sick society
 #### J Krishnamurti.
 
-> Once I had a world of my own
-> It is still there
-> Only, I am gone
+> Once I had a world of my own  
+> It is still there  
+> Only, I am gone.   
 #### Pain of Salvation, "The Perfect Element"
 
-> So run!
-> But if you run away you'll always have to hide
-> So if you need to run, run...for help!
+> So run!  
+> But if you run away you'll always have to hide.  
+> So if you need to run, run...for help!  
 #### Pain of Salvation, "Reconciliation"
 
-> If two million people do a foolish thing, it is still a foolish thing
+> If two million people do a foolish thing, it is still a foolish thing.
 #### Berke Breathed
 
 > I'm a runner. Whenever there's a problem, I run the other way. Sometimes
@@ -71,23 +71,23 @@
 > The fruit that was forbidden was on the Tree of Knowledge. The subtext
 > is, all the suffering you have is because you wanted to find out what
 > was going on. You could be in the Garden of Eden if you had just kept
-> your fucking mouth shut and hadn't asked any questions
+> your fucking mouth shut and hadn't asked any questions.
 #### Frank Zappa
 
 > Children are naïve -- they trust everyone. School is bad enough, but, if
 > you put a child anywhere in the vicinity of a church, you're asking for
-> trouble
+> trouble.
 #### Frank Zappa
 
 > If you end up with a boring miserable life because you listened to your
 > mom, your dad, your teacher, your priest, or some guy on television
-> telling you how to do your shit, then you deserve it
+> telling you how to do your shit, then you deserve it.
 #### Frank Zappa
 
-> We have two eyes to watch other people, yet we need a mirror to watch ourselves
+> We have two eyes to watch other people, yet we need a mirror to watch ourselves.
 #### Tibetan Proverb
 
-> Slave is who waits for someone to free him
+> Slave is who waits for someone to free him.
 #### Ezra Pound
 
 > If someone throw shit at us, we throw shit back at them. We start a shit
@@ -99,19 +99,20 @@
 > using you. Interested only in your, uh, attributes. All they want from
 > you is sex. No commitment, no loyalty even. They are happy taking turns
 > with you, taking no accounts of your feelings, your sensitive nature.
-> They probably don't even want to cuddle afterwards or make small talk, right?"
-> Ublala nodded.
-> "And all that is making you miserable?"
-> He nodded again.
+> They probably don't even want to cuddle afterwards or make small talk, right?"  
+> Ublala nodded.  
+> "And all that is making you miserable?"  
+> He nodded again.  
 > "Ublala! Don't you understand? You're in a man's paradise! What all the
-> rest of us can only dream about!"
-> "But I want something more!"
-> "No! You don't! Trust me."
+> rest of us can only dream about!"  
+> "But I want something more!"  
+> "No! You don't! Trust me."  
 #### pgg 359-360 "Midnight Tides", Steven Erikson
 
-> If it happens once, it's a bug.
-> If it happens twice, it's a feature.
-> If it happens more than twice, it's a design philosophy.
+> If it happens once, it's a bug.  
+> If it happens twice, it's a feature.  
+> If it happens more than twice, it's a design philosophy.  
+#### Anonymous
 
 > Women are nothing but a mass of contradictions surrounded by deadly
 > pitfalls. Approach at your own risk. Better yet, approach not at all.
@@ -142,10 +143,10 @@
 > L'Italia è in crisi, dobbiamo tirare la cinghia, magari attorno al loro collo
 #### Doc77
 
-> Show me a God that does not demand mortal suffering.
+> Show me a God that does not demand mortal suffering.  
 > Show me a God that celebrates diversity, a celebration that embraces
-> even non-believers and is not threatened by them.
-> Show me a God that understands the meaning of peace. In life, not in death.
+> even non-believers and is not threatened by them.  
+> Show me a God that understands the meaning of peace. In life, not in death.  
 #### Fiddler in "The Bonehunters" pg1125, Steven Erikson
 
 > Women may spend their whole lives looking for true love. If you wish for
@@ -155,10 +156,10 @@
 > When you reach the top, keep climbing
 #### Zen proverb
 
-> Before ordering a test, decide what you will do if:
-> it is positive,
-> it is negative.
-> If both answers are the same, don't take the test.
+> Before ordering a test, decide what you will do if:  
+> it is positive,  
+> it is negative.  
+> If both answers are the same, don't take the test.  
 #### Cochrane's Aphorism
 
 > Common sense is the collection of prejudices acquired by age 18
@@ -180,13 +181,13 @@
 #### Buddha
 
 > Nathaniel Sr.: You hang onto your pain like it means something, like it's worth
-> something. Well let me tell 'ya, it's not worth shit. Let it go.
-> "Infinite possibilities and all he can do is whine"
-> David: Well what am I supposed to do?
+> something. Well let me tell 'ya, it's not worth shit. Let it go.  
+> "Infinite possibilities and all he can do is whine"  
+> David: Well what am I supposed to do?  
 > Nathaniel Sr.: What do you think? You can do anything you lucky bastard,
-> you're alive! What's a little pain compared to that?
-> David: It can't be that simple
-> Nathaniel Sr.: What if it is?
+> you're alive! What's a little pain compared to that?  
+> David: It can't be that simple  
+> Nathaniel Sr.: What if it is?  
 #### Untitled, season 4, Six Feet Under
 
 > Don't look to the approval of others for your mental stability
@@ -468,10 +469,10 @@
 > I've stopped drinking, but only while I'm asleep.
 #### George Best
 
-> El fútbol es lo más importante entre las cosas menos importantes
+> El fútbol es lo más importante entre las cosas menos importantes.
 #### Jorge Valdano
 
-> pessimism is a set of ideals that none can follow to the letter
+> pessimism is a set of ideals that none can follow to the letter.
 #### The Conspiracy Against The Human Race, Thomas Ligotti
 
 > Psychiatry even works on the assumption that the "healthy" and viable is
@@ -482,11 +483,11 @@
 > bitter fruits of a geniality of thought or feeling at the root of
 > anti-biological tendencies. It is not the soul being sick, but the
 > protection failing, or else being rejected because it is experienced --
-> correctly -- as a betrayal of ego's highest potential
+> correctly -- as a betrayal of ego's highest potential.
 #### Why We Lie: The Evolution of Deception and the Unconscious Mind, David Livingstone Smith
 
 > He who hasn't experienced a full depression alone and over a long period
-> of time, he is a child
+> of time, he is a child.
 #### Jens Bjorneboe
 
 > This is the great lesson the depressive learns: nothing in the world is
@@ -494,33 +495,33 @@
 > itself as an affective experience. It is all a vacuous affair with only
 > a chemical prestige. Nothins is either good or bad, desiderable or
 > undesiderable, or anything else except that it is made so by
-> laboratories inside us producing the emotions on which we live
+> laboratories inside us producing the emotions on which we live.
 #### The Conspiracy Against The Human Race, Thomas Ligotti
 
 > Jesus Christ, a historical cipher stitched together like Frankestein's
-> monster out of parts robbed from the graves of messiahs dead and buried.
-> A savior on a stick
+> monster out of parts robbed from the graves of messiahs dead and buried.  
+> A savior on a stick.
 #### The Conspiracy Against The Human Race, Thomas Ligotti
 
 > Mohammed, a prophet-come-lately who pionereed a new genus of humbuggery
 > for an emerging market of believers that was not adequately served by
-> existing religious products
+> existing religious products.
 #### The Conspiracy Against The Human Race, Thomas Ligotti
 
 > Foolish ... is the man who says he fears death, not because it will pain
-> when it comes, but because it pains in the prospect
+> when it comes, but because it pains in the prospect.
 #### Epicurus
 
 > Our whole lives consist of pressures to make metaphorical as well as
-> actual bowel movements
+> actual bowel movements.
 #### The Conspiracy Against The Human Race, Thomas Ligotti
 
-> The difference between a cult and a church is real estate
+> The difference between a cult and a church is real estate.
 #### Frank Zappa
 
 > Bullshit has tremendous advantages over knowledge. Bullshit can be created as needed, on demand, without limit.
-> Anything that happens, you can make up an explanation for why it happened
+> Anything that happens, you can make up an explanation for why it happened.
 #### Bill James
 
-> Do not suppose the statements of the prophets to be true; they are all fabrications. Men lived comfortably till they came and spoiled life. The sacred books are only such a set of idle tales as any age could have and indeed did actually produce
+> Do not suppose the statements of the prophets to be true; they are all fabrications. Men lived comfortably till they came and spoiled life. The sacred books are only such a set of idle tales as any age could have and indeed did actually produce.
 #### Abu al-'Ala' al-Ma'arri
