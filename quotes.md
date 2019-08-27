@@ -536,3 +536,18 @@
 
 > You want a lesson, boy? If you find yourself being born, climb back in as quick as you can, because life's a bottomless feast of shit
 #### Moncraine in The Republic of Thieves, Scott Lynch
+
+> You say your god is unknowable?  
+> But the unknowable and the non-existent are indistinguishable  
+#### David Eller
+
+> A cult is a religion you disapprove of  
+> A religion is a cult that has gained acceptance
+#### David Eller
+
+> Religion is not so bad – unless you believe it
+#### David Eller
+
+> Old gods don’t get disproved  
+> They get forgotten
+#### David Eller
