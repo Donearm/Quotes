@@ -525,3 +525,14 @@
 
 > Do not suppose the statements of the prophets to be true; they are all fabrications. Men lived comfortably till they came and spoiled life. The sacred books are only such a set of idle tales as any age could have and indeed did actually produce.
 #### Abu al-'Ala' al-Ma'arri
+
+> We have a duty to accept on faith, but also a duty to weigh and judge. Once you insist that some mundane thing was actually the miraculous hand of the gods, why not treat everything that way?
+> When you start finding messages from the heavens in your breakfast sausages, you've thrown aside your responsibility to use your head.
+> If the gods wanted credulous idiots for priests, why wouldn't they make you that way when you were chosen?
+#### Jean in The Republic of Thieves, Scott Lynch
+
+> Tea is no good for waking up civilized
+#### Jean in The Republic of Thieves, Scott Lynch
+
+> You want a lesson, boy? If you find yourself being born, climb back in as quick as you can, because life's a bottomless feast of shit
+#### Moncraine in The Republic of Thieves, Scott Lynch
