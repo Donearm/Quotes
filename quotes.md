@@ -551,3 +551,9 @@
 > Old gods don’t get disproved  
 > They get forgotten
 #### David Eller
+
+> One of the brighter manifestation of human arrogance is your so called historiography, trying to deliver opinions and verdicts on "past events" as you call them.
+> This is typical of you humans, who nature has given an existence as fleeting as that of an insect or an ant, with your ridiculous life-spans under a hundred years. Your fleeting existence is trying to adapt to the complexity of the world.
+> You refuse to take note that history is a process that constantly continues and never ends; it cannot be divided into sections from here to here, from date to date.
+> It is not impossible to define history, let alone change it, by a proclamation by a monarch. Even if you win the war
+#### The Lady of the Lake, Andrzej Sapkowski
