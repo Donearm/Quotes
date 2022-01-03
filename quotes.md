@@ -557,3 +557,17 @@
 > You refuse to take note that history is a process that constantly continues and never ends; it cannot be divided into sections from here to here, from date to date.
 > It is not impossible to define history, let alone change it, by a proclamation by a monarch. Even if you win the war
 #### The Lady of the Lake, Andrzej Sapkowski
+
+> Some souls are broken in such a way as to think themselves whole. The more 
+> they are flawed, the more they presume their own perfection.
+#### The Unholy Consult, Scott R. Bakker
+
+> Souls had become desiccate tinder, and words sparks.
+#### The Unholy Consult, Scott R. Bakker
+
+> Life is the damnation that anticipates damnation.
+#### The Unholy Consult, Scott R. Bakker
+
+> To live was to grind possibility into an endless thread of actualities, to 
+> slough moments like a serpent shedding an infinite, anguished skin.
+#### The Unholy Consult, Scott R. Bakker
