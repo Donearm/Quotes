@@ -571,3 +571,10 @@
 > To live was to grind possibility into an endless thread of actualities, to 
 > slough moments like a serpent shedding an infinite, anguished skin.
 #### The Unholy Consult, Scott R. Bakker
+
+> If one wishes to remain an individual in the midst of the teeming multitudes, 
+> one must make oneself grotesque
+#### Midnight's Children, Salman Rushdie
+
+> Buf it small things to, will large things be close behind?
+#### Midnight's Children, Salman Rushdie
