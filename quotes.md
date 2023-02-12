@@ -578,3 +578,10 @@
 
 > Buf it small things to, will large things be close behind?
 #### Midnight's Children, Salman Rushdie
+
+> All I ask of life is a bunch of books, a bunch of dreams, and a bunch of cunt
+#### Tropic of Cancer, Henry Miller
+
+> You can get something out of a book, even a bad book...but a cunt, it's just 
+> sheer loss of time
+#### Tropic of Cancer, Henry Miller
