@@ -585,3 +585,6 @@
 > You can get something out of a book, even a bad book...but a cunt, it's just 
 > sheer loss of time
 #### Tropic of Cancer, Henry Miller
+
+> Faith is the confusion of hope with knowledge
+#### Scott R. Bakker
