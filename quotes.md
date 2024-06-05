@@ -588,3 +588,7 @@
 
 > Faith is the confusion of hope with knowledge
 #### Scott R. Bakker
+
+> He who thinks he knows it not, knows it. He who thinks he knows it, knows it not.
+> The true knowers think they can never know it, while the ignorant think they know it
+#### The Upanishads
