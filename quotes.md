@@ -592,3 +592,7 @@
 > He who thinks he knows it not, knows it. He who thinks he knows it, knows it not.
 > The true knowers think they can never know it, while the ignorant think they know it
 #### The Upanishads
+
+> Every soldier thinks something of the moral aspects of what he is doing. But 
+> all war is immoral and if you let that bother you, you're not a good soldier
+#### Gen. Curtis LeMay
