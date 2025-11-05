@@ -596,3 +596,8 @@
 > Every soldier thinks something of the moral aspects of what he is doing. But 
 > all war is immoral and if you let that bother you, you're not a good soldier
 #### Gen. Curtis LeMay
+
+> If anyone is unwilling to descend into himself because this is too painful, 
+> he will remain superficial in his writing… If you are unwilling to know what 
+> you are, your writing is a form of deceit.
+#### Ludwig Wittgenstein
